@@ -24,9 +24,9 @@ _B.E. in Computer Science (Specialization in AIML)_
 ---
 
 ### 💬 Let’s Connect
-- 📧 Email: *your-email@example.com*  
-- 💼 LinkedIn: *[Add your LinkedIn link here]*  
-- 🌐 Portfolio: *[Add your portfolio link if you have one]*  
+- 📧 Email: *chandukothakota2@gmail.com*  
+- 💼 LinkedIn: *www.linkedin.com/in/chandu8121*  
+
 
 ---
 
