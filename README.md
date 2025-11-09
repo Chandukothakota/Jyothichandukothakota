@@ -19,7 +19,7 @@
 ### 📚 Education
 **Chandigarh University**  
 _B.E. in Computer Science (Specialization in AIML)_  
-📆 2021 – 2025 | 🎓 4th Year  
+📆 2022 – 2026 | 🎓 4th Year  
 
 ---
 
